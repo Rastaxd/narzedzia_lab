@@ -1,1 +1,1 @@
-Politechnika
+Politechnika Bydoska
